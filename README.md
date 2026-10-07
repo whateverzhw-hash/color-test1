@@ -1,2 +1,2 @@
 # color-test1
-AI四季型人色彩测试｜16型个人色彩分析
+https://chatgpt.com/library/share/libfile_5886117acc508191932984dd485b13bd?account_id=personal
